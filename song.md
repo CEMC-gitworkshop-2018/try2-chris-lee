@@ -1,3 +1,3 @@
 
 
-And washed the spider out
+Then came the sun that dried up all the rain
