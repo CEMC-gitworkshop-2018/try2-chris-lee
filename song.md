@@ -1,2 +1,2 @@
 
-The itsy-bitsy spider
+The itsy bitsy spider crawled up the water spout
